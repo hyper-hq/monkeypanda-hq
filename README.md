@@ -1,0 +1,7 @@
+- 👋 Hi, we are monkeypanda
+- 👀 We are building SaaS products
+- 🚀 Mainly social media marketing apps
+- 🥑 But soon also in the health & fitness industry
+- 🌎 Monkeys and pandas work remotely
+- 👔 But we have an office @ Schiphol, NL
+- 📫 Reach the founder at vince@monkeypanda.com
